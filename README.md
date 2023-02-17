@@ -1,0 +1,2 @@
+# TYPING-ANIMATION
+ 
